@@ -6,8 +6,11 @@ Turning Off real-time Protection before using**
 
 **Protection Features:
 Protection From synapse
+
 Protection From synapse
+
 Protection From virus
+
 Protection From roblox**
 
 **Enjoy!**
